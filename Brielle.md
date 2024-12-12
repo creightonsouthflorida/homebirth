@@ -1,5 +1,8 @@
 Praise God from whom all blessings flow! We had the joy of welcoming our fifth child, Brielle Kay McKeown on Sunday, October 13th. Our second home birth!
 
+![Image 0](images/brielle/0.jpg)
+
+
 Entering the third trimester, I fully anticipated going past my due date. 3/4 of my other kids had ended up going past their due date, and with Blaise I drank midwives brew to kick labor into gear. My plan was to get to October 15th which was my due date, and drink the brew that evening. 
 
 This fifth pregnancy was definitely the most physically challenging one I've experienced. I felt the most “pregnant” by far, and was dealing with sciatica pain for the first time. Overall, I’m very fortunate, and wasn’t miserable, but it was also my first time feeling more “done” with pregnancy. 
@@ -24,8 +27,21 @@ While I was standing next to the pool, my body started shaking pretty intensely 
 
 One thing I wanted to do this birth that I had never done before was to feel the baby coming out with my hand. I reached down and I could feel her head right there, and said “I’m getting in the tub!” While feeling quite awkward, I quickly but carefully climbed over the side and lowered myself into the water and felt my body push down again. The fetal ejection reflex is very real, and I have noticed it with my last 3 births that were unmedicated. I am just a passenger during the labor experience, and my body is pushing out the baby without my help at all. I quickly felt her head come out, then her shoulders, and boom she was born. It was seconds of me getting into the birth pool and she flew out! She felt noticeably easier to birth than Blaise who was 9lb 9oz.  
 
+![Image 1](images/brielle/1.jpg)
+![Image 2](images/brielle/2.jpg)
+![Image 3](images/brielle/3.jpg)
+![Image 4](images/brielle/4.jpg)
+
+
 It was such a great and fast labor, I could hardly believe how fast everything was. I held her for a bit, feeling relieved and surprised it was over and James said, “what do we have?” Her umbilical cord was so long and draped right across her, so we moved that and saw she was indeed a girl. I had been guessing girl this whole pregnancy! I didn't stay long in the tub as the water wasn't quite as warm as they would like, so I moved to the bed to deliver the placenta. The best thing about home birth is getting into your own bed while holding your brand new perfect baby. She weighed 7lb 15oz; right in the middle of the five kids' weights.
+
+![Image 7](images/brielle/7.jpg)
+![Image 8](images/brielle/8.jpg)
+
 
 Anothing detail was that while her head was coming out, I heard Blaise cry out, and he was awake for the day. We had decided that if I went into labor at night, we’d just let the kids sleep, but apparently they knew something exciting was happening in the house! My mom went to get him, and brought him into the room to meet his baby sister. Within the next hour, the other three were up as well and all got to see their baby sister, as well as where she was born and say hi to our wonderful birth team. 
 
-
+![Image 9](images/brielle/9.jpg)
+![Image 10](images/brielle/10.jpg)
+![Image 11](images/brielle/11.jpg)
+![Image 5](images/brielle/5.jpg)
